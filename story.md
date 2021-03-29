@@ -1,2 +1,2 @@
-One day a man was walking through the jungle with a business man and a tiger came to attack them. The crocidle saved them from the tiger . They went back to city safely .
+One day a man was walking through the jungle with a business man and a tiger came to attack them.  The Liger saved them from the tiger . They went back to city safely .
 The end...............
